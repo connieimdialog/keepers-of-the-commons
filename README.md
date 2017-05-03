@@ -7,6 +7,7 @@
 > You need to license content in an open way
 > 
 > A keeper of the commons, you must be
+> 
 > If you love something beautiful, set it free
 > 
 > You might think that you can keep control
